@@ -6,5 +6,5 @@
 
 https://github.com/user-attachments/assets/139ad6fc-dc51-4d65-bfc6-f5b48fffb359
 
-![smaya template](https://github.com/user-attachments/assets/603ede80-e1db-4ef6-b118-89cfb8277855)
+
 https://drive.google.com/drive/folders/1hrlfbkarVPos1GM8hGxEobpi3QN5GLyF?usp=sharing
