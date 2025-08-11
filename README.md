@@ -1,1 +1,8 @@
 # Autonomus-Robot-
+<img width="581" height="431" alt="Screenshot 2024-09-13 165904" src="https://github.com/user-attachments/assets/64b630b1-e00a-42a8-8719-31c6deefb523" />
+<img width="1916" height="1079" alt="Screenshot 2024-09-13 165834" src="https://github.com/user-attachments/assets/29e207b1-ef7b-4c94-b0e5-505cb0dd461a" />
+
+
+
+https://github.com/user-attachments/assets/139ad6fc-dc51-4d65-bfc6-f5b48fffb359
+
